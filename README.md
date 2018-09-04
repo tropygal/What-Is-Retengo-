@@ -64,7 +64,20 @@ BitcoinTalk Bumping : submit with a subject as “Bitcointalk Bump” along with
 Bounty collections will be done 29th of September 2018 . you can join the bounty as many as you can to collect retengo token (REG) .
 Please include your ETH ADDRESS in the mail in order for us to send the bounty.
 
- 
+ Trade REG on decentralized exchange
+Fordelta :
+https://forkdelta.app/#!/trade/0x62050d57cb395239972dc9a0d6c1ba273b45a416-ETH
+Etherdelta:
+https://etherdelta.com/#0x62050d57cb395239972dc9a0d6c1ba273b45a416-ETH
+
+Follow our social account
+Website : http://retengo.co
+Twitter : https://twitter.com/Retengo1
+Telegram: https://t.me/retengo
+Facebook : https://m.facebook.com/retengo1/?ref=bookmarks
+Medium : https://medium.com/@retengo123
+Instagram : https://www.instagram.com/retengo1/
+Telegram channel : https://t.me/retengochannel﻿
 
  
  
